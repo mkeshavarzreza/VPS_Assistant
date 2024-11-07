@@ -17,6 +17,8 @@ https://packity.com/
 https://cryptotabbrowser.com/
 https://honeyminer.com/
 https://surfe.be/
+https://radioearn.com/
+https://pawns.app/
 
 https://www.tiptime.cn/
 https://www.onethingcloud.com/
