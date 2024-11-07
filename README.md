@@ -26,3 +26,8 @@ https://www.onethingcloud.com/
 
 https://github.com/jf-m/earning-machine
 
+News:
+https://bytelixir.com/
+https://wipter.com/
+https://uprock.com/
+
