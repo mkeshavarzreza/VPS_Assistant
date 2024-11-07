@@ -16,7 +16,6 @@ https://addslice.com/
 https://2captcha.com/
 https://packity.com/
 https://cryptotabbrowser.com/
-https://honeyminer.com/
 https://surfe.be/
 https://radioearn.com/
 https://pawns.app/
