@@ -12,21 +12,19 @@ https://bitping.com/earn
 https://my.mystnodes.com/login
 https://earn.fm/en/
 https://proxylite.ru/
-https://addslice.com/
 https://2captcha.com/
-https://packity.com/
-https://cryptotabbrowser.com/
 https://surfe.be/
-https://radioearn.com/
 https://pawns.app/
-
+https://addslice.com/
+https://radioearn.com/
 https://www.tiptime.cn/
 https://www.onethingcloud.com/
+https://cryptotabbrowser.com/
 
 https://github.com/jf-m/earning-machine
 
 News:
-https://bytelixir.com/
 https://wipter.com/
+https://bytelixir.com/
 https://uprock.com/
 
